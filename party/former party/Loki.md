@@ -1,0 +1,2 @@
+- his Owl is called Munin
+- he now runs our bar in Aldor
