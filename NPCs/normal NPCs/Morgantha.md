@@ -1,0 +1,2 @@
+- witch lady, sells dream pastry
+- she wanted to take a child as payment, we convinced her to create a contract for her bussiness instead within 1-2 weeks

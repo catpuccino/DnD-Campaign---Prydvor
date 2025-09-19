@@ -1,0 +1,1 @@
+- restless spirits from the rebellion rise at night and retrace their steps to the door of [[Gaeldyr]]s Tower where they were slaughtered

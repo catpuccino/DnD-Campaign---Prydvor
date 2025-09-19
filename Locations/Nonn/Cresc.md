@@ -1,0 +1,1 @@
+it's a place for monks, [[Gaeldyr]] hates them, but the Order dissolved after they locked themselves in and tore eachother to pieces

@@ -1,0 +1,1 @@
+- density varies and keeps people around the college, its the thinnest there
