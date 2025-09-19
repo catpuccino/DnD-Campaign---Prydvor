@@ -27,12 +27,12 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "party/current party/Tupp.md",
+                "file": "party/former party/Liz.md",
                 "mode": "source",
                 "source": false
               },
               "icon": "lucide-file",
-              "title": "Tupp"
+              "title": "Liz"
             }
           }
         ],
@@ -196,10 +196,10 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "70843ee2f9bf08d6",
+  "active": "49f2a5d28eaa1769",
   "lastOpenFiles": [
-    "party/former party/Doot Bonk.md",
     "party/current party/Tupp.md",
+    "party/former party/Doot Bonk.md",
     "party/former party/Liz.md",
     "party/former party/Loki.md",
     "party/former party/Azof.md",
