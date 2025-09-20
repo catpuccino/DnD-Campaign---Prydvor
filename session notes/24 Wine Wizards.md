@@ -1,0 +1,73 @@
+- tasked to retrieve a shipment of wine
+- crossroads, raven at the signpost, pointing us into the direction of the vineyard
+- fenced grapes, rained on
+- Bill the Raven, strong voice :D, hopping around
+- other ravens picking at grapes and corpses and stuff
+	- how do they harvest those grapes under those conditions???
+		- were told before that they magically grow anyway?
+- cloaked figure, master of Bill, [[Adyron Madricov]]
+	- face is scarf-covered, sunken features, thick brown beard, starts greying
+	- stressed
+	- ragged clothing outside, raised status clothes underneath, merchant-like
+
+- ravens are all over, mating calls D:
+- encampment, 3 set up tents
+	- children playing with ravens
+- [[Alena]] new character, perched on a trunk at the side
+	- hooded, can't make out many features
+	- short hair, searches for wine
+- old disgruntled man, (think of filch from harry potter)
+	- Dad of [[Adyron Madricov]]
+- vinyard overrun by wood folk, owners of the vinyard the Madricovs
+	- started a week ago
+	- prevent them from making wine?
+	- [[Gaeldyr]] loves the wine there but always points out that the wizards are not actual wizards
+		- people pointed out how the grapes are probably magically altered
+		- they always taste the same and gives them a euphoric feeling
+	- establish a trading route of wine c: maybe, when the fog lifts
+- hundreds of blights in the vineyard
+
+- long rest
+- krunk woke up completely alone, no head :(
+- endless void, 6 different figures step up around him, they are effigies he placed
+- heads of effigies split up and fog spills out, forming a small body for [[Murdoc]]
+- sees giant tree trunks appear in the very distance
+- hears a gently whisper: "done well my chosen" : )
+- some of the tree trunks are their legs :    )
+- gets a first of many gifts, pale, enormous elk skull  :       )
+	- needled, leafed, mossy antlers
+	- enveloped into fog
+		- claws, mouth, tail, wings spawn
+- wakes up, mid-air, bloody wings, now has a flying speed of 30ft., 60ft. when raging
+- [[Alena]] takes watch, feels a drop of...something, blood, looking up, sees the flying half-orc, completely naked, bloody
+- she grabs his leg as he flies around, they just have a quick talk, she goes to the other villages to sleep
+
+- child talking to a raven, "getting our home back?", ravens calls us weirdos
+
+- head out, chant some friendly songs to the plants
+- winery, 2 story building, iron fencing at the top edge of the roof
+- wooden stable, somewhat never
+- loading dock
+- west of the winery: crumbling well, outhouse
+
+- lots of vines everywhere at the driveway, bit of movement in the house
+- look down the well, half collapsed, about 40ft down, murky water, old rope
+	- [[Krunk]] descends, nothing interesting
+- wooden outhouse -> dark wood, heart-shaped hole
+	- "the outhouse contains no surprised"
+- hungry horses in the barn, fed them
+- loading dock has a wagon with barrels, hole in the ceiling with crane
+- room with huge fermentation barrels, 4 big wooden casks in the middle of the room,
+- hunching female human woman, gown with animal skins, goat horns, pouring some liquid, poisoning it, into the wine, twig creatures walking around, fighting, woman gets mad
+- killed them
+- standard poison in the flask, disadvantage on everything
+	- for normal people, they would die
+- the staff is "Gulthias Staff"
+	- can destroy it go kill all blights in 300ft.!, can heal
+- wines: purple grape mash A (3copper, cheap) , red dragon crush (great, 1silver), fancy champaign isnt here tho
+- wine cellar downstairs:
+	- wine racks, western empty, eastern full
+- got attacked again in there by more wood folk
+	- zavendyr turned blue
+- brown mold all over the walls :( its kinda living actually, completely heat-resistant, provides cool air
+- barrel maker workshop, some wood, strips of iron, some tools
