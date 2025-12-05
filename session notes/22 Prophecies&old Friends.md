@@ -1,0 +1,1 @@
+- ran into a [[Caravan]],  got our fortune told by [[Mme Ava]]

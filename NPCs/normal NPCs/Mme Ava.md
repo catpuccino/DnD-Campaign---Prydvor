@@ -1,0 +1,4 @@
+- fortune teller
+- elderly, prob. human, dark skin
+- 3 golden star ornaments, white eyes, cigarette, white hair
+	- golden cage wth brown bird (homunculus, "Fiddle")
